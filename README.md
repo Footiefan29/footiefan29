@@ -7,12 +7,11 @@ Welcome to my corner of the internet! I'm a proud Year 7 student with a passion 
 - ❤️ Favourite color: RED (like Liverpool's kit!)
 - ⚽ Huge Liverpool FC fan — You'll Never Walk Alone!
 - 🏏 Cricket enthusiast — whether it's batting, bowling, or cheering from the stands
-- 🧊 Speedcubing addict — always chasing that sub-30 solve!
+- 🧊 Speedcubing addict — always chasing that sub-20 solve!
 
 ## ⚽ Liverpool FC Love
 - Favourite player: Florian Wirtz
 - Best moment: The 2019 Champions League final win against Tottenham Hotspur🏆
-- Dream: To watch a match live at Anfield and sing with the Kop 🎶
 
 ## 🏏 Cricket Craze
 - Batting or bowling? Bowling is my jam! 🎳
