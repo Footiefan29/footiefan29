@@ -1,6 +1,6 @@
 # 👋 Hey there, I'm Vaanya Arora!
 
-Welcome to my corner of the internet! I'm a proud Year 7 student with a passion for sports, puzzles, and all things RED ❤️
+Welcome to my corner of the internet! I'm a proud SMC student with a passion for sports, puzzles, and all things RED ❤️
 
 ## 🔴 About Me
 - ❤️ Favourite color: RED (like Liverpool's kit!)
