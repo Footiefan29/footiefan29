@@ -3,7 +3,6 @@
 Welcome to my corner of the internet! I'm a proud Year 7 student with a passion for sports, puzzles, and all things RED ❤️
 
 ## 🔴 About Me
-- 🏫 Year 7 student
 - ❤️ Favourite color: RED (like Liverpool's kit!)
 - ⚽ Huge Liverpool FC fan — You'll Never Walk Alone!
 - 🏏 Cricket enthusiast — whether it's batting, bowling, or cheering from the stands
