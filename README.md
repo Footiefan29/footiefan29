@@ -37,4 +37,5 @@ Welcome to my corner of the internet! I'm a proud SMC student with a passion for
 
 Thanks for stopping by! If you're into football, cricket, or cubing — let's chat!  
 🔴 #YNWA #CricketVibes #CubingGod
+Also i made this project for school if it works chack it out file:///C:/Users/User/Documents/hajjproject.html
 
